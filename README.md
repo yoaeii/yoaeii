@@ -40,6 +40,6 @@
 <br/>
 <br/>
 
-- **[Discord](https://discord.com/users/1030474205034188841)**: my tag is yoaei. This is the main social network where I spend the most time. Write to me, I will be glad to have a conversation with you.
+- **[Discord](https://discord.com/users/928879618428108850)**: my tag is yoaei. This is the main social network where I spend the most time. Write to me, I will be glad to have a conversation with you.
 
 - **[YouTube](https://www.youtube.com/@yoaeii)**: is my social channel where I occasionally post reviews of my projects. You can expect my new projects on this channel, because I will be releasing them soon.
